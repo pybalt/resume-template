@@ -4,3 +4,7 @@ This is a canva template to update my resume.
 
 link to modify my template:
 https://www.canva.com/design/DAFNYI_9sjA/bJY1UkHQUOPaVbMeT4Sdwg/view?utm_content=DAFNYI_9sjA&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
+
+link to access to my own template (you won't find this link useful):
+https://www.canva.com/design/DAFNYI_9sjA/p38sO9fIDs5AZH1VQZpinQ/edit?utm_content=DAFNYI_9sjA&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
